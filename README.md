@@ -1,9 +1,12 @@
-# lab-1
+# lab-1 ssssssssss
 
-lisdfsdne1
-
-dfdfdf
-d
+liswefwedne1wfef
+eefef
+defe
 qqdfdf
+efefef
+fffdfghghhfffefefefee
 
-fffdfghghhfff
+
+
+fgdfhg
