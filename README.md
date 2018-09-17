@@ -1,9 +1,9 @@
 wer# lab-1
 
-linreree1
+lisdfsdne1
 
-IAMRweran
+dfdfdf
+d
+qqdfdf
 
-qqqwer
-
-ewrewrfeffff
+fffdfghghhfff
