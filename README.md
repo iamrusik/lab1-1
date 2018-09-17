@@ -1,7 +1,9 @@
-# lab1
+# lab-1
 
-line1
+lisdfsdne1
 
-IAMRuslan
+dfdfdf
+d
+qqdfdf
 
-AdventureTime
+fffdfghghhfff
