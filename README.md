@@ -1,9 +1,9 @@
 # lab-1
 
-line1
+lisdfsdne1
 
-IAMRuslan
+dfdfdf
+d
+qqdfdf
 
-qqqqq
-
-ffffffff
+fffdfghghhfff
