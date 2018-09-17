@@ -1,9 +1,9 @@
-# lab-1
+wer# lab-1
 
-line1
+linreree1
 
-IAMRuslan
+IAMRweran
 
-qqqqq
+qqqwer
 
-ffffffff
+ewrewrfeffff
