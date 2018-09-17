@@ -1,4 +1,4 @@
-# lab1
+# lab-1
 
 line1
 
